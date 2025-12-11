@@ -6,7 +6,7 @@ WISSAL ELORF
 
 
 
-![Ma photo](https://raw.githubusercontent.com/Wissalelorf1234/22005965-WISAL-ELORF-/main/nom_image.jpg)
+![WhatsApp Image 2025-05-14 à 15 27 05_28a255a9](https://github.com/user-attachments/assets/26513b8d-86f9-47d7-a3fc-39b7daac1233)
 
 
 
